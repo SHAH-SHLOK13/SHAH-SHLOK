@@ -1,4 +1,4 @@
-# Hi , I,m SHLOK ✨
+# Hi , I'm SHLOK ✨
 
   🧠 Computer science student at IIIT-VADODRA<br>
   📚 Ex JEE aspirant <br>
